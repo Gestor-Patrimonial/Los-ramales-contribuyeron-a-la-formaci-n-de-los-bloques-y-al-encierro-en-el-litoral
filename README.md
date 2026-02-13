@@ -1,1 +1,2 @@
 # Los-ramales-contribuyeron-a-la-formaci-n-de-los-bloques-y-al-encierro-en-el-litoral
+El desarrollo de los ferrocarriles particulares quedó pues, desde el punto de vista de la expansión de sus vías troncales, terminada a principios del presente siglo. A partir de 1900 comienza un trabajo paciente y sistemático de encierro dentro de las fronteras que se había fijado y que coinciden rigurosamente con las de la zona del Shorthorn. Empieza la tarea de construir ramales, de realizar transferencias, deformar bloques; en una palabra, de tender a la formación del bloque de bloques. 
